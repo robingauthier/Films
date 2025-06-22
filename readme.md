@@ -5,7 +5,7 @@ Il faut chercher sur yandex.com et tu trouveras des liens ok.ru ou yandex.com/vi
 Les russes connaissent tres bien les vieux films francais. 
 
 
-Je ne mentionne pas les films trop connus (les gendarmes, le corniaud, le samourai,fantomas,la boum, les miserables, le compte de monte Cristo, ... ).  Le but est de parler de ces films oublies qui sont tres bien. 
+Je ne mentionne pas les films trop connus (les gendarmes, le corniaud, le samourai,fantomas,la boum, les miserables, le compte de monte Cristo, l'aventure c'est l'aventure, le guignolo, flic ou voyou, ... ).  Le but est de parler de ces films oublies qui sont tres bien. 
 
 ## Acteurs
 - Patrick Deware : immense acteur a mon avis. Il s'est suicide jeune. "Serie noire" est un chef d'oeuvre. Les valseuses aussi. 
@@ -15,22 +15,26 @@ Je ne mentionne pas les films trop connus (les gendarmes, le corniaud, le samour
 - Annie Girardot : Jeune elle avait les cheveux long ca lui allait mieux. Immense actrice. 
 - Jean Pierre Marielle : immense acteur. Un de mes preferes. 
 - Philippe Noiret : immense acteur.
-- Alain Delon  : j'ai ete decu par "La piscine". "Le samourai" super,
+- Alain Delon  : immense. Mais j'ai ete decu par "La piscine". "Le samourai" super,"borsalino" tres bien. 
 - Belmondo : faut voir "Leon morin pretre" pour voir comment il a commence.
 - Fernandel : j'aime bien mais il a tres mal vieilli. Don Camillo c'est bien mais ca fait vieux aujourd'hui. "La vache et le prisonnier" tres bien. 
 - Bourvil : c'est l'acteur apprecie par les gens des campagnes. "La cuisine au beurre" se regarde bien et est moins connu que le corniaud. 
-- Jean Marai
+- Jean Marai : 
 - Yves Montand : Grand acteur. Les films de claude sautet ou Alain Corneau avec lui sont tres bien. Cesar et Rosalie, Max et les ferrailleurs ,ou 
 - Maurice Giraud : j'aime beaucoup. Regarder Taxi pour Toubrouk
 - Meurisse : 
 - Michel Piccoli : un de mes preferes. 
 - Daniel Auteuil : excellent. Voir "Sade", ou "la fille sur le pont". 
-- 
+- Charles Gerard : il est marrant. Regarder l'aventure c'est l'aventure. 
+- Lino Ventura : extraordinaire. 
+- Jean Louis Trintignant : grand acteur. assez froid quand meme. 
+- Michel Simon : completement oublie aujourd'hui. Regarder l'atalante.
 Cote feminin
 - Francoise Arnoult : Grande actrice, star des annees 60. La Chatte d'henri decoin est bien. 
 - Danielle Darieux : mariee a Henri Decoin c'etait une star. Mais je ne suis pas un grand fan d'elle. 
 - Catherine Deneuve : excellente. 
 - Romy Schneider: j'adore. Sissi ca a mal vieilli. Les films qu'elle a fait pour Claude Sautet sont bien. Cesar et Rosalie par exemple.
+- 
 ## Realisateurs
 - Michel Audiard : realisateur mais surtout dialogiste. Le genie du dialogue francais. Gabin est tres bon pour interpreter les dialogues de Audiard. 
 - Marco Ferreri : Le mec a un grain de folie. _Liza_ (1972) et _La Grande Bouffe_ (1973) sont bien. 
@@ -45,6 +49,8 @@ Cote feminin
 - Jean Gabin : faut tout regarder. 
 - Louis de Funes : j'ai tout regarde je pense, 
 - Bertrand Blier : 
+- Claude Zidi : les films avec les Charlots ont mal vieilli. Mais 
+- Marcel Carme : regarder "Hotel du Nord". Y a une video youtube dans laquelle on l'interview et il raconte sa vie, et en particulier ses galeres. C'est tres interessant.
  
 ## Liste de films sans ordre a absolument voir
 
@@ -58,7 +64,11 @@ Cote feminin
 - Le sucre (https://fr.wikipedia.org/wiki/Le_Sucre) bien sur la bourse.
 - Le trio infernal (https://fr.wikipedia.org/wiki/Le_Trio_infernal) excellent
 - Les aventuriers (https://fr.wikipedia.org/wiki/Les_Aventuriers_(film,_1967))
-
+- Un homme et une femme ( de Lelouch)
+- L'atalante ( de vigo) : faut regarder ce film car c'est le precurseur de la nouvelle vague. 
+- La Traque (1975) : ca derange carrement.
+- C'est arrive pres de chez vous : chef d'oeuvre a mon gout, mais pas pour tout le monde.
+- 
 #### Films Lies a la guerre ou la resistance a regarder
 - Paris brûle-t-il ? : film documentaire.
 - Le jour le plus long: extraordinaire. Film documentaire sur le debarquement.
@@ -67,7 +77,8 @@ Cote feminin
 - La bataille du rail : tres bien. 
 - Week End a Zudycoote : avec Belmondo d'ailleurs.
 - Taxi pour Toubrouk 
-  
+- le vieux fusil : extraordinaire
+- 
 
 
 
